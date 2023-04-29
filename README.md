@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Lelloo23
 - 👀 I’m interested in learning new things and explore around
-- 🌱 I’m currently thinking of learning eithe QA or...still thinking
+- 🌱 I’m currently thinking of learning QA
 - 💞️ I’m looking to collaborate with all students and instructors in this group in any way possible
 - 📫 You can reach me out via email address- leelloo.d@gmail.com or my telegram account +25191 133 8179
 
